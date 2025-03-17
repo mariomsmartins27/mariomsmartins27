@@ -1,6 +1,6 @@
-- 👋 Hi, I’m Mário Martins, I'm a 23 year old student from Portugal.
+- 👋 Hi, I’m Mário Martins, I'm a 25 year old student from Portugal.
 - 👀 I’m interested in videogames, motorsports and tech.
-- 🌱 I’m currently finishing my lincensed degree in Software Engeneering.
+- 🌱 I’m currently finishing my Masters degree in Software Engeneering.
 - I’m looking to collaborate on anything, I'm just learning and looking for experience.
 - 📫 How to reach me: Discord: SKN#6382
 
